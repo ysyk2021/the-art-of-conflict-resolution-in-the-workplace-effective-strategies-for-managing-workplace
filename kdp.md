@@ -10,7 +10,6 @@ This book is designed to help you learn how to manage conflicts in the workplace
 
 Whether you are a manager or an employee, this book will provide you with practical tips and strategies for resolving conflicts in a positive and productive manner. So, let's get started on the journey towards becoming a skilled conflict resolver!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
