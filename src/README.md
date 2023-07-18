@@ -1,7 +1,5 @@
 # Introduction
 
-Introduction
-
 Conflict is an inevitable part of any workplace. When people with different personalities, backgrounds, and goals work together, it's natural that they will experience disagreements and conflicts. However, if left unaddressed, these conflicts can escalate and become detrimental to the overall productivity and well-being of the workplace.
 
 The art of conflict resolution is a crucial skill for any manager or employee who wants to create a healthy and productive work environment. In this book, we will explore effective strategies for managing workplace conflicts. We will discuss the root causes of conflicts, how to identify them, and most importantly, how to resolve them.
