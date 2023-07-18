@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 11: Conclusion
-======================
-
 Conflict in the workplace is inevitable, but by employing effective conflict resolution strategies, individuals and organizations can manage conflicts constructively and respectfully. In this chapter, we will recap key strategies for effective conflict resolution and provide some final thoughts and advice.
 
 Recap of Key Strategies for Effective Conflict Resolution
