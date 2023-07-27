@@ -64,4 +64,4 @@ Conflict-ridden workplaces often struggle with decision-making and collaboration
 Conclusion
 ----------
 
-Understanding the causes and impact of workplace conflict is vital for promoting a harmonious and productive work environment. By addressing these factors proactively, organizations can implement effective conflict resolution strategies. In the next chapter, we will explore various strategies for managing workplace conflicts and fostering positive resolutions.
+Understanding the causes and impact of workplace conflict is vital for promoting a harmonious and productive work environment. By addressing these factors proactively, organizations can implement effective conflict resolution strategies.
