@@ -14,5 +14,25 @@ MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. H
 
 
 
-please give 20 amazon search keywords related to this book "The Art Of Conflict Resolution In The Workplace: Effective Strategies For Managing Workplace Conflicts"
+1. Workplace conflict resolution strategies
+2. Conflict management techniques
+3. Resolving conflicts at work
+4. Effective workplace communication
+5. Conflict resolution skills
+6. Conflict resolution theories
+7. Workplace mediation techniques
+8. Conflict resolution in organizations
+9. Conflict resolution negotiation
+10. Team conflict resolution
+11. Conflict resolution training
+12. Dealing with workplace conflicts
+13. Conflict resolution in the office
+14. Conflict resolution for managers
+15. Conflict resolution books
+16. Workplace dispute resolution
+17. Conflict resolution case studies
+18. Conflict resolution and problem-solving
+19. Conflict resolution techniques for supervisors
+20. Building a positive work environment
+
 
