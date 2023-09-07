@@ -1,5 +1,3 @@
-Developing Empathy and Compassion through Conflict Resolution
-==================================================================================================================
 
 Conflict is an inevitable part of any workplace, but it doesn't have to be detrimental. By developing a conflict resolution mindset, we can transform conflicts into opportunities for growth, understanding, and collaboration. One important aspect of this mindset is the cultivation of empathy and compassion towards others involved in the conflict.
 

@@ -1,5 +1,3 @@
-Managing Emotions and Staying Calm
-===========================================
 
 In this chapter, we will explore the importance of managing emotions and staying calm when dealing with workplace conflicts. Emotional intelligence plays a crucial role in conflict resolution, as it allows individuals to approach conflicts with composure, empathy, and rationality. This chapter provides strategies for recognizing and managing emotions effectively to promote constructive dialogue and successful conflict resolution.
 

@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In this chapter, we will explore the significance of conflict resolution in the workplace and debunk common misconceptions surrounding workplace conflicts. Additionally, we will discuss the numerous benefits that effective conflict management can bring to an organization.
 

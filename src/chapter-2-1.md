@@ -1,5 +1,3 @@
-Overview of Workplace Conflict
-=======================================
 
 In this chapter, we will provide an overview of workplace conflict within the context of the book "The Art of Conflict Resolution in the Workplace: Effective Strategies for Managing Workplace Conflicts." Understanding the nature and dynamics of workplace conflict is crucial for developing effective strategies to address and resolve conflicts in a constructive manner.
 

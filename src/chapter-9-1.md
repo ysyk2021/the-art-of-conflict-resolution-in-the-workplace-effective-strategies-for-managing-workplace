@@ -1,5 +1,3 @@
-Encouraging Proactive Conflict Management Across the Organization
-=======================================================================================================================
 
 Encouraging proactive conflict management is an essential aspect of creating a culture of conflict resolution in the workplace. In this chapter, we will explore strategies for encouraging proactive conflict management across the organization.
 

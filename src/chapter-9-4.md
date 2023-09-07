@@ -1,5 +1,3 @@
-Celebrating Successful Conflict Resolutions
-=======================================================
 
 In the journey of conflict resolution in the workplace, it is important to celebrate and acknowledge successful outcomes. This chapter explores the significance of celebrating successful conflict resolutions and provides strategies for recognizing and appreciating these achievements. By celebrating successes, organizations can reinforce positive behaviors, boost morale, and foster a culture of effective conflict resolution.
 

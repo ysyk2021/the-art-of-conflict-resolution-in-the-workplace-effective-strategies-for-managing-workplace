@@ -1,5 +1,3 @@
-Chapter 2: Defining Workplace Conflict
-======================================
 
 Workplace conflict is an inevitable part of any organization. It can arise from a variety of sources, including differences in opinions, values, and personalities. In this chapter, we will provide an overview of workplace conflict, discuss the science behind it, and assess personal approaches to conflict.
 

@@ -1,5 +1,3 @@
-Developing Effective Mediation and Facilitation Skills
-====================================================================================================================
 
 Conflict is an inevitable part of any workplace, but how we manage and resolve these conflicts can greatly impact the overall atmosphere and productivity. In this chapter, we will explore the importance of mediation and facilitation in conflict resolution and discuss strategies for developing effective mediation and facilitation skills.
 

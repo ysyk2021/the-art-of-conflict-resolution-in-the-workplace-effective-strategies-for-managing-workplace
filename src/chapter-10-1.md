@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-===================================================================================================
 
 Effective conflict resolution requires ongoing effort and a commitment to continuous improvement. In order to ensure that conflict resolution strategies are effective, it is important to track progress and measure results. In this chapter, we will explore strategies for measuring results and learning from experience.
 

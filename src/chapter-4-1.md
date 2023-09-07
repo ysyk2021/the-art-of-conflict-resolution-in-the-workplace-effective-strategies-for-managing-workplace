@@ -1,5 +1,3 @@
-Identifying Common Sources of Workplace Conflict
-===========================================================================================================
 
 Workplace conflicts can arise from various factors, ranging from differences in communication styles to conflicting goals or values. To effectively resolve conflicts, it is crucial to understand the common sources that give rise to such issues. In this chapter, we will explore some of the primary causes of workplace conflict and how identifying them can lead to more effective conflict resolution strategies.
 

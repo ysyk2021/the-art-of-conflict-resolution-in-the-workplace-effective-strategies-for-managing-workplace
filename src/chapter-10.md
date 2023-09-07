@@ -1,5 +1,3 @@
-Chapter 10: Measuring Results and Learning from Experience
-==========================================================
 
 Effective conflict resolution requires ongoing effort and continuous learning. In this chapter, we will explore strategies for measuring results, reflecting on experiences, and adapting to changes in the workplace.
 

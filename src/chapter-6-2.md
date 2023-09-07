@@ -1,5 +1,3 @@
-Identifying Common Ground and Shared Interests
-===============================================================================================================
 
 Conflict resolution in the workplace often requires a collaborative approach that focuses on identifying common ground and shared interests among conflicting parties. By engaging in negotiation and collaboration, individuals can work towards finding mutually beneficial solutions and fostering positive relationships.
 

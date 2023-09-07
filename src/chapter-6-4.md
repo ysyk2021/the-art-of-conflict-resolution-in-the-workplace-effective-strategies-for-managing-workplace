@@ -1,5 +1,3 @@
-Fostering Trust and Respect
-============================================================================================
 
 In the workplace, conflicts are inevitable. However, resolving these conflicts effectively requires a combination of negotiation and collaboration. This chapter will explore the importance of fostering trust and respect during the conflict resolution process.
 

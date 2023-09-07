@@ -1,5 +1,3 @@
-Non-Judgmental Responses
-=================================
 
 In this chapter, we will explore the importance of non-judgmental responses in conflict resolution within the context of the book "The Art of Conflict Resolution in the Workplace: Effective Strategies for Managing Workplace Conflicts." By adopting a non-judgmental approach, individuals can foster open communication, understanding, and effective resolution of conflicts. This chapter will delve into the principles and techniques of non-judgmental responses and their application in various conflict scenarios.
 

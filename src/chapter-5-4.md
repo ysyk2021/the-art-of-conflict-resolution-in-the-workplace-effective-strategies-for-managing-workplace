@@ -1,5 +1,3 @@
-Building Connection and Empathy
-==========================================
 
 In the workplace, conflicts are inevitable. However, building connection and empathy can help mitigate conflicts and foster a positive work environment. This chapter explores strategies for building connection and empathy to effectively manage workplace conflicts. By cultivating relationships, promoting open communication, and demonstrating empathy, individuals can establish a foundation of trust and understanding.
 

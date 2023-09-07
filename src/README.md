@@ -1,4 +1,4 @@
-# Introduction
+
 
 Conflict is an inevitable part of any workplace. When people with different personalities, backgrounds, and goals work together, it's natural that they will experience disagreements and conflicts. However, if left unaddressed, these conflicts can escalate and become detrimental to the overall productivity and well-being of the workplace.
 
@@ -9,3 +9,7 @@ This book is designed to help you learn how to manage conflicts in the workplace
 Whether you are a manager or an employee, this book will provide you with practical tips and strategies for resolving conflicts in a positive and productive manner. So, let's get started on the journey towards becoming a skilled conflict resolver!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

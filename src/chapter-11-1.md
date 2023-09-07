@@ -1,5 +1,3 @@
-Recap of Key Strategies for Effective Conflict Resolution
-=================================================================================
 
 Effective conflict resolution is essential for promoting a positive and productive workplace environment. Throughout this book, we have explored a variety of strategies for effective conflict resolution. In this final chapter, we will recap the key strategies and highlight their importance in resolving workplace conflicts.
 

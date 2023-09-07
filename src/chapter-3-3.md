@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-===========================================================================================
 
 In any workplace, conflicts are inevitable. However, the way we approach and resolve these conflicts can greatly impact productivity, team morale, and overall organizational success. To effectively manage workplace conflicts, it is essential to develop a conflict resolution mindset by setting realistic goals and objectives. This chapter will explore strategies for cultivating such a mindset and provide practical tips for setting achievable goals in conflict resolution.
 

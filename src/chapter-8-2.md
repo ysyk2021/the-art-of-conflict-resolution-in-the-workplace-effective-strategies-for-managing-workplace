@@ -1,5 +1,3 @@
-Identifying Strategies for Managing Different Personality Types
-===================================================================================================================================
 
 In conflict resolution, managing difficult personalities can be a challenge. However, by identifying different personality types and employing effective strategies, you can manage conflicts constructively and respectfully. In this chapter, we will explore strategies for managing different personality types.
 

@@ -1,5 +1,3 @@
-Chapter 4: Understanding the Causes of Workplace Conflict
-=========================================================
 
 Workplace conflict is an inevitable part of any organization. However, it is how conflicts are managed that can make a significant difference in the overall productivity and well-being of employees. In this chapter, we will explore the common sources of workplace conflict, warning signs to look out for, the impact of conflict on individuals and organizations, and proactive measures to address conflict.
 

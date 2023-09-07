@@ -1,5 +1,3 @@
-Understanding the Science Behind Workplace Conflict
-============================================================
 
 In this chapter, we will delve into the science behind workplace conflict within the context of the book "The Art of Conflict Resolution in the Workplace: Effective Strategies for Managing Workplace Conflicts." By understanding the underlying causes and dynamics of conflicts, we can gain insights into why they occur and how to effectively address and resolve them.
 

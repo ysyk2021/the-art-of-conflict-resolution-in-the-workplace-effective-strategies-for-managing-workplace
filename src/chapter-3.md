@@ -1,5 +1,3 @@
-Chapter 3: Developing a Conflict Resolution Mindset
-===================================================
 
 Developing a conflict resolution mindset is essential for effectively managing workplace conflicts. A conflict resolution mindset involves adopting an attitude and approach that prioritizes constructive problem-solving and positive outcomes. In this chapter, we will explore techniques for cultivating a conflict resolution mindset, including utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion.
 

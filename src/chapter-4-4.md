@@ -1,5 +1,3 @@
-Addressing Conflict Proactively
-==========================================================================================
 
 In this chapter, we will explore the various causes of workplace conflicts and discuss proactive strategies for effectively addressing them. By understanding the root causes of conflict, organizations can take preventive measures to create a harmonious work environment and foster positive relationships among employees.
 

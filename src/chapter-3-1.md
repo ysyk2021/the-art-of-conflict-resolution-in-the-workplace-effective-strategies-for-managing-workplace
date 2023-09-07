@@ -1,5 +1,3 @@
-Techniques for Cultivating a Conflict Resolution Mindset
-=============================================================================================================
 
 In this chapter, we will explore various techniques and strategies for developing a conflict resolution mindset in the workplace. Cultivating such a mindset is essential for effective conflict management and creating a harmonious work environment. By adopting these techniques, individuals can enhance their conflict resolution skills and contribute to a more productive and collaborative workplace culture.
 

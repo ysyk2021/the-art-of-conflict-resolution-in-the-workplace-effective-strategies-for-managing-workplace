@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Conflict
-=====================================================
 
 In this chapter, we will explore the importance of assessing your personal approach to conflict within the context of the book "The Art of Conflict Resolution in the Workplace: Effective Strategies for Managing Workplace Conflicts." Understanding your own tendencies, strengths, and areas for growth when it comes to conflict can help you develop effective strategies for managing and resolving conflicts in the workplace.
 

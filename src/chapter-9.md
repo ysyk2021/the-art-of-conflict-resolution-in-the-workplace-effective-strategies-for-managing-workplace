@@ -1,5 +1,3 @@
-Chapter 9: Creating a Culture of Conflict Resolution
-====================================================
 
 Creating a culture of conflict resolution is essential for promoting a positive and productive work environment. In this chapter, we will explore strategies for creating a culture of conflict resolution.
 

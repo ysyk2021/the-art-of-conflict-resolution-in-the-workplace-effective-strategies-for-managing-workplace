@@ -1,5 +1,3 @@
-Chapter 5: Effective Communication in Conflict Resolution
-=========================================================
 
 Effective communication is essential for successful conflict resolution in the workplace. In this chapter, we will explore the principles of effective communication and strategies for active listening, non-judgmental responses, and building connection and empathy.
 

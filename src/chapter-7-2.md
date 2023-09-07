@@ -1,5 +1,3 @@
-Identifying When to Bring in a Third Party
-========================================================================================================
 
 Conflict is inevitable in any workplace, and addressing conflicts effectively is crucial for maintaining a harmonious and productive work environment. In some instances, conflicts can be resolved internally through open communication and negotiation between the involved parties. However, there are situations where external intervention becomes necessary to facilitate a fair and impartial resolution. This is where mediation and facilitation come into play.
 

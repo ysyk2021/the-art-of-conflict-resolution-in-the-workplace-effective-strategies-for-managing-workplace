@@ -1,5 +1,3 @@
-Common Misconceptions about Workplace Conflicts
-========================================================
 
 In this chapter, we will address some common misconceptions about workplace conflicts within the context of the book "The Art of Conflict Resolution in the Workplace: Effective Strategies for Managing Workplace Conflicts." By debunking these misconceptions, we aim to enhance the reader's understanding of conflicts and provide insights into how to approach and manage them effectively. This chapter challenges commonly held beliefs and encourages a more nuanced perspective on workplace conflicts.
 

@@ -1,5 +1,3 @@
-Chapter 7: Mediation and Facilitation in Conflict Resolution
-============================================================
 
 Mediation and facilitation are effective tools for resolving conflicts in the workplace. Bringing in a neutral third party can help parties communicate more effectively, understand each other's perspectives, and work towards a mutually beneficial solution. In this chapter, we will explore the role of mediation and facilitation in conflict resolution, including when to bring in a third party, developing effective skills, and encouraging participation and cooperation.
 
@@ -38,5 +36,4 @@ Conclusion
 ----------
 
 Mediation and facilitation are effective tools for resolving conflicts in the workplace. By bringing in a neutral third party, parties can communicate more effectively, understand each other's perspectives, and work towards a mutually acceptable solution. Effective mediation and facilitation require a variety of skills, including active listening, empathy, and impartiality. By encouraging participation and cooperation, mediators and facilitators can help parties reach a positive and productive resolution to their conflict.
-
 

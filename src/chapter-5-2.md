@@ -1,5 +1,3 @@
-Active Listening and Presence
-========================================================================================
 
 In this chapter, we will explore the significance of effective communication skills, specifically active listening and presence, in resolving workplace conflicts. Clear and open communication is essential for understanding different perspectives, finding common ground, and fostering positive resolutions. By practicing active listening and demonstrating presence during conflict resolution, individuals can create a conducive environment for constructive dialogue and successful conflict management.
 

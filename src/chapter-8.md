@@ -1,5 +1,3 @@
-Chapter 8: Managing Difficult Personalities in Conflict Resolution
-==================================================================
 
 Managing difficult personalities is a critical skill for effective conflict resolution in the workplace. In this chapter, we will explore strategies for managing different personality types and dealing with aggression and hostility.
 

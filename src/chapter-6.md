@@ -1,5 +1,3 @@
-Chapter 6: Negotiation and Collaboration in Conflict Resolution
-===============================================================
 
 Negotiation and collaboration are essential skills in conflict resolution. When individuals are able to work together towards a common goal, they can achieve mutually beneficial outcomes that satisfy the needs of all parties involved. In this chapter, we will explore the principles of negotiation and collaboration in conflict resolution, including identifying common ground, developing win-win solutions, and fostering trust and respect.
 

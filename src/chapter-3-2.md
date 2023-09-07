@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-===================================================================================================
 
 Conflicts are an inevitable part of our lives, especially in the workplace. One of the key factors that can contribute to effective conflict resolution is developing a positive mindset. In this chapter, we will explore how utilizing positive self-talk and visualization techniques can help individuals develop a conflict resolution mindset.
 

@@ -1,5 +1,3 @@
-Encouraging Participation and Cooperation
-=======================================================================================================
 
 Conflict is an inevitable part of any workplace, but it doesn't have to be detrimental. In fact, conflicts can provide opportunities for growth and improvement if managed effectively. One approach that has proven successful in resolving workplace conflicts is mediation and facilitation.
 
