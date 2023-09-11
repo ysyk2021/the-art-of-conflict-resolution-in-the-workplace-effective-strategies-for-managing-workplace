@@ -1,5 +1,4 @@
-Chapter: Adapting to Changes in the Workplace
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Conflict Resolution in the Workplace: Effective Strategies for Managing Workplace Conflicts," we will explore the importance of adapting to changes in the workplace when it comes to conflict resolution. In today's dynamic work environments, being able to adjust and navigate through changes is crucial for effective conflict management.
 

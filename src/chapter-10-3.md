@@ -1,5 +1,4 @@
-Chapter: Continuous Learning and Improvement
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Conflict Resolution in the Workplace: Effective Strategies for Managing Workplace Conflicts," we will explore the importance of continuous learning and improvement in effectively managing workplace conflicts. Conflict resolution is an ongoing process that requires a commitment to learning, growth, and refining strategies for addressing conflicts more effectively.
 
